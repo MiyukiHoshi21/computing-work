@@ -8,9 +8,9 @@ You're probably thinking that Friday the 13th does not exist, right? Well, let m
 
 "You know, today might not be so boring!" Ms Ng (Math teacher) jumped in excitedly, eyes shining behind her pair of red spectacles. 
 
-"Really? Why so?" Ms Vaz inquired, glancing up from her computer. 
+"Really? Why so?" Ms Vaz (English teacher) inquired, glancing up from her computer. 
 
-"Oh, I know! It's because it's Friday the 13th right?" Mdm Sim (Chinese teacher) asked, glancing at Ms Ng (Math teacher). Ms Ng (Math teacher) nodded vigorously. 
+"Oh, I know! It's because it's Friday the 13th right?" Mdm Sim (Chinese teacher) asked, glancing at Ms Ng (Math teacher), who nodded vigorously in response. 
 
 "You shouldn't believe in this kind of thing. We're grown adults and teachers." Ms Lee (PE teacher) commented, pushing a cart of netballs to the PE storeroom. 
 
@@ -20,7 +20,7 @@ You're probably thinking that Friday the 13th does not exist, right? Well, let m
 
 "That reminds me, I wonder how is 1H doing, they arranged a meetup in school today." Ms Ng (Geography teacher) pondered out loud, tapping her pencil which she used to draw maps on her chin thoughtfully. 
 
-"Maybe we can go visit them during our lunch break later." Mr Mark (Computing teacher) suggested, not looking up from the code he was working on. 
+"Maybe we can go visit them during our lunch break later." Mr Ng (Computing teacher) suggested, not looking up from the code he was working on. 
 
 Woosh! All of a sudden, the door to the staffroom was flung open. 
 
