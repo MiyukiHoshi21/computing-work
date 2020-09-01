@@ -52,7 +52,7 @@ Eyes widened one after another. The zombie disease was contagious!
 
 “(Boy 1), lead the way!” Ms Nora (Malay) grinned and everyone started following (Boy 1) out of the staffroom. 
 
-<A few moments later>
+*A few moments later*
 
 “We’re here!” (Boy 1) declared, pointing at the field. “The boys and I were playing soccer here before (Boy 2) came with the potion.” He clarified. 
 
@@ -76,7 +76,7 @@ Together, (Boy 5) and (Boy 6) sprinted away.
 
 “Wait, let’s get closer to see how many people are infected first.” Mr Mark (Comp) suggested. Everyone nodded in agreement. 
 
-<At the corner of the field>
+*At the corner of the field*
 
 “Holy cow! Th-they look so different y-yet so recognisable!” Ms Vora (E Lit) stuttered, pointing at the group of zombies. 
 
