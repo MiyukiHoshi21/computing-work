@@ -26,7 +26,7 @@ Woosh! All of a sudden, the door to the staffroom was flung open.
 
 "Ah, Ms Yick, you're back from the music roo-" Ms Goh (Art teacher) greeted, looking up from a painting she was doing before she was interrupted. 
 
-"H-help!" All the teachers whipped their heads around only to see (Boy 1) gasping for air. He was trying to stablize himself by holding onto the door of the staffroom and looked like he had just run a 100km marathon. 
+"H-help!" All the teachers whipped their heads around only to see (Boy 1) gasping for air. He was trying to stabilize himself by holding onto the door of the staffroom and looked like he had just run a 100km marathon. 
 
 "Are you okay (Boy 1)? What happened?" Ms Vora (Literature teacher) asked concernedly, walking over to him. 
 
