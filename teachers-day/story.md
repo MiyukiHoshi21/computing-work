@@ -12,4 +12,4 @@ You're probably thinking that Friday the 13th does not exist, right? Well, let m
 "Maybe we can go visit them during our lunch break later." Mr Mark (Computing teacher) suggested, not looking up from the code he was working on. <br/>
 Woosh! All of a sudden, the door to the staffroom was flung open. <br/>
 "Ah, Ms Yick, you're back from the music roo-" Ms Goh (Art teacher) greeted, looking up from a painting she was doing before she was interrupted. <br/>
-"H-help!" All the teachers
+"H-help!" All the teachers whipped their heads around only to see (Boy 1) gasping for air. He was trying to stablize himself by holding onto the door of the staffroom and looked like he had just run a 100km marathon. <br/>
