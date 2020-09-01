@@ -32,4 +32,6 @@ Woosh! All of a sudden, the door to the staffroom was flung open.
 
 "I... gasp... the z-zombies... cough cough..." (Boy 1) panted, using his left arm to wipe the beads of sweat that had formed on his forehead. 
 
-"(Boy 1), calm down! Do you want to take a seat?" Ms 
+"(Boy 1), calm down! Do you want to take a seat?" (One of our LSP cooking teachers because I forgot their names) pointed at a stool by the door. 
+
+"Do you need water? I have water." 
