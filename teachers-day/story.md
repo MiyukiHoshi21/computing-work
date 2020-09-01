@@ -6,3 +6,6 @@
   "Really? Why so?" Ms Vaz inquired, looking up from her computer. <br/>
   "Oh, I know! It's because it's Friday the 13th right?" Mdm Sim (Chinese teacher) asked, glancing at Ms Ng (Math teacher). Ms Ng (Math teacher) nodded vigorously. <br/>
   "You shouldn't believe in this kind of things. We're grown adults and teachers." Ms Lee (PE teacher) commented, pushing a cart of netballs to the PE storeroom. <br/>
+
+
+Add lots of ghosts and strange, freaky things happening to them (eg things floating around, disturbing visions, howling and moaning, blood on the walls, dark shadows following you) then make it a quest to survie the night/ solve the mystery of the spookiness and then.......................they all wake up. They look at the calender. Friday the 14th. It was all a dream. They all had the same dream though. The next month, it happens again. Every time they die/ fail to solve. they will wake up at the same area again. How can they escape the dream?.....................
