@@ -32,9 +32,9 @@ Woosh! All of a sudden, the door to the staffroom was flung open.
 
 "I... gasp... the z-zombies... cough cough..." (Boy 1) panted, using his left arm to wipe the beads of sweat that had formed on his forehead.
 
-"(Boy 1), calm down! Do you want to take a seat?" (Cooking teacher 1 - I forgot their names) pointed at a stool by the door.
+"(Boy 1), calm down! Do you want to take a seat?" Ms Chang (Cooking) pointed at a stool by the door.
 
-"Do you need water? I have water." Ms Wee (ACC – I’m not exactly sure what’s her name in English) offered, holding out a water bottle. 
+"Do you need water? I have water." Ms Lie (ACC) offered, holding out a water bottle. 
 
 (Boy 1) grabbed the bottle and gulped down the whole drink in 10 seconds. It was a miracle that he didn’t choke. 
 
@@ -48,7 +48,7 @@ Gasps rippled through the teachers who had gathered around (Boy 1).
 
 Eyes widened one after another. The zombie disease was contagious! 
 
-“We need to go save the other kids from 1H! They are not safe as long as they are in the school premises!” Ms Zhang (ACC – I’m not exactly sure what’s her name in English) exclaimed, already making her way to the staff room door. 
+“We need to go save the other kids from 1H! They are not safe as long as they are in the school premises!” Ms Zhang (ACC) exclaimed, already making her way to the staff room door. 
 
 “(Boy 1), lead the way!” Ms Nora (Malay) grinned and everyone started following (Boy 1) out of the staffroom. 
 
@@ -66,7 +66,7 @@ Screams could be heard, and all the teachers’ eyes were drawn to a side of the
 
 Together, (Boy 5) and (Boy 6) sprinted away. 
 
-“Let’s get help from other students.” (Cooking teacher 2 - I forgot their names) muttered, shaking her head. 
+“Let’s get help from other students.” Mdm Tang (Cooking) muttered, shaking her head. 
 
 “Do you need any help?” (Boy 7) queried as he neared the group of teachers. 
 
@@ -86,29 +86,29 @@ The zombies looked exactly like the boys they were except they had purple hair, 
 
 “Look out!” (Boy 9) who just happened to be dashing past yelled and pushed Mrs Chu out of the way. 
 
-(Boy 8) changed direction and started stumbling toward (Boy 9), only to get whacked in the head by the triumphant Mr Lim (Science teacher) with a tennis racket that happened to be lying nearby. (Boy 8) tumbled to the ground and lay there, unconscious. 
+(Boy 8) changed direction and started stumbling toward (Boy 9), only to get whacked in the head by the triumphant Mr Lim (SC) with a tennis racket that happened to be lying nearby. (Boy 8) tumbled to the ground and lay there, unconscious. 
 
-“That’s it! We can knock all the zombified students unconscious so they cannot harm us so we don’t have to kill them!” Ms Goh (Art teacher) said suddenly, eyes lighting up. 
+“That’s it! We can knock all the zombified students unconscious so they cannot harm us so we don’t have to kill them!” Ms Goh (Art) brought up suddenly, eyes lighting up. 
 
 “Hey! You knocked out (Boy 8)!” (Boy 2) shouted accusingly. 
 
-“What do you think you are doing?” Mdm Sim (Chinese teacher) chided (Boy 2). 
+“What do you think you are doing?” Mdm Sim (CL) chided (Boy 2). 
 
-“Yeah! You should teach us all to make that potion!” Mr Ong (Science teacher), still as enthusiastic about chemistry as ever, grinned. 
+“Yeah! You should teach us all to make that potion!” Mr Ong (SC), still as enthusiastic about chemistry as ever, grinned. 
 
-“That’s not what we meant! Don’t let (Boy 2) hear you!” (LSP cooking teacher 2 because I forgot their names) shushed Mr Ong (Science teacher). 
+“That’s not what we meant! Don’t let (Boy 2) hear you!” Mdm Tang (Cooking) shushed Mr Ong (SC). 
 
 “Ah!” (Boy 3) shriek pierced the air and everyone turned around to see him collapsing onto the ground and a netball flying in the opposite direction. 
 
-“What are you waiting for? Start using these netballs to shoot!” Ms Lee (PE teacher) asked, picking up another netball and shooting it towards (Boy 10), who had just turned into a zombie, netball-style. The ball landed squarely on (Boy 10)’s head and with a yelp of pain he crumpled to the ground. 
+“What are you waiting for? Start using these netballs to shoot!” Ms Lee (PE) asked, picking up another netball and shooting it towards (Boy 10), who had just turned into a zombie, netball-style. The ball landed squarely on (Boy 10)’s head and with a yelp of pain he crumpled to the ground. 
 
-“Hey what’s this?” Ms Yick (Music teacher) wondered out loud, picking up a piece of paper. 
+“Hey what’s this?” Ms Yick (Music) wondered out loud, picking up a piece of paper. 
 
-“Looks like some Chinese words. What could they mean?” Mr Mark (Computing teacher) asked curiously. 
+“Looks like some Chinese words. What could they mean?” Mr Mark (Comp) asked curiously. 
 
 
-“I can help to translate it with Mdm Sim (Chinese teacher). Wait, there are Malay words at the back of the paper!” Ms Wee (ACC teacher I think idk what’s her name in English) pointed out. 
+“I can help to translate it with Mdm Sim (CL). Wait, there are Malay words at the back of the paper!” Ms Lie (ACC) pointed out. 
 
-“Ms Zhang (ACC teacher I think idk what’s her name in English) and I can help with that!” Ms Nora (Malay teacher) offered. “You still remember your conversational Malay, right Ms Zhang (ACC teacher I think idk what’s her name in English)?” Ms Nora inquired, turning to Ms Zhang (ACC teacher I think idk what’s her name in English). 
+“Ms Zhang (ACC) and I can help with that!” Ms Nora (Malay) offered. “You still remember your conversational Malay, right Ms Zhang (ACC)?” Ms Nora (Malay) inquired, turning to Ms Zhang (ACC). 
 
-“Okay, let’s go over to the spectator stands to translate the note. Ms Yick (Music teacher) would you like to follow us and help us to look out for zombies?” Ms Zhang (ACC teacher I think idk what’s her name in English) asked. Ms Yick nodded and 
+“Okay, let’s go over to the spectator stands to translate the note. Ms Yick (Music) would you like to follow us and help us to look out for zombies?” Ms Zhang (ACC) asked. Ms Yick (Music) nodded and 
