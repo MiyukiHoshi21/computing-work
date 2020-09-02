@@ -111,4 +111,62 @@ The zombies looked exactly like the boys they were except they had purple hair, 
 
 “Ms Zhang (ACC) and I can help with that!” Ms Nora (Malay) offered. “You still remember your conversational Malay, right Ms Zhang (ACC)?” Ms Nora (Malay) inquired, turning to Ms Zhang (ACC). 
 
-“Okay, let’s go over to the spectator stands to translate the note. Ms Yick (Music) would you like to follow us and help us to look out for zombies?” Ms Zhang (ACC) asked. Ms Yick (Music) nodded and 
+“Okay, let’s go over to the spectator stands to translate the note because it is further away from this corner.” Ms Zhang (ACC) piped up. 
+
+*A few moments later*
+
+“I’m sorry, (Boy 11) but I have to do this.” Ms Ng (Geog) apologised before shooting a netball. 
+
+“No! Your posture is wrong! You need to have your arm in a straight line and not use both hands to shoot!” Ms Lee (PE) instructed, demonstrating. 
+
+“Ohhh… I get it now!” Ms Poh (Hist) tried to shoot but missed. 
+
+“Well at least you looked good while missing.” Ms Lee (PE) remarked. “That’s what I always tell my students.”
+
+“AHHH!!!” (Boy 12) screamed so shrilly that everyone had to stop and cover their ears for a moment. 
+
+The zombified (Boy 11) was biting (Boy 12). Everyone’s faces paled but was nothing in comparison to the shade of white that (Boy 12)’s face had turned. 
+
+Everyone waited for (Boy 12) to turned into a zombie but he didn’t. 
+
+“Wait what? How is this possible?” Mr Low (Makerspace) asked in disbelief. 
+
+“Hmmm… I read somewhere that while most people turn into zombie’s, some people are a-symptomatic, so they do not turn into a zombie.” Ms Vaz (EL) explained. 
+
+“Wow! Where did you read that?” The astonished (Boy 12) asked. 
+
+“As an English teacher I have to read books to expand my knowledge. You should too. It would help with your compositions.” Ms Vaz (EL) replied. 
+
+“But the a-symptomatic people can also spread the zombie disease.” Mr Low (Makerspace) brought up. 
+
+Everyone involuntarily took a step back from (Boy 12). 
+
+“Well at least (Boy 12) is safe from turning into a zombie.” (Boy 7) commented. “I don’t think we should all try to see if we are a-symptomatic though.”
+
+“Guys, the field suddenly feels very empty.” Ms Chang (Cooking) noted. 
+
+“I think a few of the boys have disappeared too.” Ms Ng (MA) added. 
+
+“AHHH!!!”
+
+“HELP!!!”
+
+“SAVE ME!!!”
+
+“AHHH!!!”
+
+(Boy 13) and (Boy 14) who also stopped to help, panicked. Everyone turned to the gate which was closer to the canteen. 
+
+“That doesn’t sound like (Random boy) overreacting and screaming in his girly voice.” (Boy 14) muttered. 
+
+“Yeah, I think it sounds like real girls.” (Boy 13) stated, eyes wide. 
+
+At the moment, realisation dawned on the boys and they looked at each other, horrified. 
+
+“I’m guessing the girls are in the parade square.” Mr Lee (TRP) interpreted. 
+
+The boys nodded slowly. 
+
+“Let’s go save them then!” Mr Ho (Comp) declared. 
+
+Everyone agreed and grabbed as many netballs as they could and darted towards the sound of the screams. 
