@@ -170,3 +170,5 @@ The boys nodded slowly.
 “Let’s go save them then!” Mr Ho (Comp) declared. 
 
 Everyone agreed and grabbed as many netballs as they could and darted towards the sound of the screams. 
+Maaybe for some teachers with signature phrases like ms ng (math) "通通讲完“ or the acc li lao shi's phrase "你们能听懂我的话吗？" or a joke from Mr Ong cos he always says jokes
+oh oh! and then you forgot Mr Chew! at the end after your last line about Mr Ho (comp) you can say "Chewbacca to the rescue!"
