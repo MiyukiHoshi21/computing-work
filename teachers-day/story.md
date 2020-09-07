@@ -12,7 +12,7 @@ You're probably thinking that Friday the 13th does not exist, right? Well, let m
 
 "Oh, I know! It's because it's Friday the 13th right?" Mdm Sim (CL) asked, glancing at Ms Ng (MA), who nodded vigorously in response.
 
-"You shouldn't believe in this kind of thing. We're grown adults and teachers." Ms Lee (PE) commented, pushing a cart of netballs to the PE storeroom.
+"You shouldn't believe in this kind of thing. We're grown adults and teachers." Ms Lee (PE) commented, pushing a cart of netballs to the PE storeroom, Mr Chew (PE) following closely behind with another cart.
 
 "Yes, it's not scientifically proven that bad things always happen on Friday the 13th." Mrs Chu (SC) remarked before continuing to draw the light diagram she was drawing for her future year 1s.
 
@@ -133,7 +133,6 @@ Everyone waited for (Boy 12) to turned into a zombie but he didn’t.
 
 “Hmmm… I read somewhere that while most people turn into zombie’s, some people are a-symptomatic, so they do not turn into a zombie.” Ms Vaz (EL) explained. 
  
-
 “Wow! Where did you read that?” The astonished (Boy 12) asked. 
 
 “As an English teacher I have to read books to expand my knowledge. You should too. It would help with your compositions.” Ms Vaz (EL) replied. 
@@ -166,13 +165,11 @@ At the moment, realisation dawned on the boys and they looked at each other, hor
 
 “I’m guessing the girls are in the parade square.” Mr Lee (TRP) interjected. 
 
-The boys nodded slowly. why slowly?
+The boys nodded slowly. 
 
 “Let’s go save them then!” Mr Ho (Comp) declared. 
 
+"Chewbacca to the rescue!" Mr Chew (PE) shouted, punching his fist into the air. 
+
 Everyone agreed and grabbed as many netballs as they could and darted towards the sound of the screams. 
 
-
-
-Maaybe for some teachers with signature phrases like ms ng (math) "通通讲完“ or the acc li lao shi's phrase "你们能听懂我的话吗？" or a joke from Mr Ong cos he always says jokes
-oh oh! and then you forgot Mr Chew! at the end after your last line about Mr Ho (comp) you can say "Chewbacca to the rescue!"
