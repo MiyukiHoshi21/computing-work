@@ -132,6 +132,7 @@ Everyone waited for (Boy 12) to turned into a zombie but he didn’t.
 “Wait what? How is this possible?” Mr Low (Makerspace) asked in disbelief. 
 
 “Hmmm… I read somewhere that while most people turn into zombie’s, some people are a-symptomatic, so they do not turn into a zombie.” Ms Vaz (EL) explained. 
+ 
 
 “Wow! Where did you read that?” The astonished (Boy 12) asked. 
 
@@ -163,10 +164,15 @@ Everyone involuntarily took a step back from (Boy 12).
 
 At the moment, realisation dawned on the boys and they looked at each other, horrified. 
 
-“I’m guessing the girls are in the parade square.” Mr Lee (TRP) interpreted. 
+“I’m guessing the girls are in the parade square.” Mr Lee (TRP) interjected. 
 
-The boys nodded slowly. 
+The boys nodded slowly. why slowly?
 
 “Let’s go save them then!” Mr Ho (Comp) declared. 
 
 Everyone agreed and grabbed as many netballs as they could and darted towards the sound of the screams. 
+
+
+
+Maaybe for some teachers with signature phrases like ms ng (math) "通通讲完“ or the acc li lao shi's phrase "你们能听懂我的话吗？" or a joke from Mr Ong cos he always says jokes
+oh oh! and then you forgot Mr Chew! at the end after your last line about Mr Ho (comp) you can say "Chewbacca to the rescue!"
