@@ -169,7 +169,7 @@ The boys nodded slowly.
 
 “Let’s go save them then!” Mr Ho (Comp) declared. 
 
-"Chewbacca to the rescue!" Mr Chew (PE) shouted, punching his fist into the air. 
-
 Everyone agreed and grabbed as many netballs as they could and darted towards the sound of the screams. 
+
+"Chewbacca to the rescue!" Mr Chew (PE) shouted, punching his fist into the air. 
 
