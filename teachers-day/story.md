@@ -124,9 +124,9 @@ The zombies looked exactly like the boys they were except they had purple hair, 
  
 “AHHH!!!” (Boy 12) screamed so shrilly that everyone had to stop and cover their ears for a moment.
  
-The zombified (Boy 11) was biting (Boy 12). Everyone’s faces paled but was nothing in comparison to the shade of white that (Boy 12)’s face had turned.
+The zombified (Boy 11) was biting (Boy 12). Everyone’s faces paled but it was nothing in comparison to the shade of white that (Boy 12)’s face had turned.
  
-Everyone waited for (Boy 12) to turned into a zombie but he didn’t.
+Everyone waited for (Boy 12) to turn into a zombie but he didn’t.
  
 “Wait what? How is this possible?” Mr Low (Makerspace) asked in disbelief.
  
