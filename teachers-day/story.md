@@ -122,9 +122,9 @@ The zombies looked exactly like the boys they were except they had purple hair, 
  
 “No! Your posture is wrong! You need to have your arm in a straight line and not use both hands to shoot!” Ms Lee (PE) instructed, demonstrating.
  
-“Ohhh… I get it now!” Ms Poh (Hist) tried to shoot but missed.
+“Ohhh… I get it now!” Ms Poh (Hist) tried to shoot but missed, and her face flushed with emarassement as she laughed nervously.
  
-“Well at least you looked good while missing.” Ms Lee (PE) remarked. “That’s what I always tell my students.”
+“Well at least you looked good while missing.” Ms Lee (PE) assured. “That’s what I always tell my students.”
  
 “AHHH!!!” (Boy 12) screamed so shrilly that everyone had to stop and cover their ears for a moment.
  
@@ -166,12 +166,12 @@ Everyone involuntarily took a step back from (Boy 12).
  
 At the moment, realisation dawned on the boys and they looked at each other, horrified.
  
-“I’m guessing the girls are in the parade square.” Mr Lee (TRP) interpreted.
+“I’m guessing the girls are in the parade square.” Mr Lee (TRP) interpreted, already knowing what they were about to say.
  
 The boys nodded slowly.
  
 “Let’s go save them then!” Mr Ho (Comp) declared.
  
-"Chewbacca to the rescue!" Mr Chew (PE) shouted, punching his fist into the air.
+"Chewbacca to the rescue!" Mr Chew (PE) shouted, punching his fist into the air, already holding two netballs and a badminton racket to go with him.
  
 Everyone agreed and grabbed as many netballs as they could and darted towards the sound of the screams.
