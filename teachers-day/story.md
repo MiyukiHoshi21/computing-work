@@ -1,5 +1,7 @@
 *Story imcomplete! I haven't finished the story yet due to time constaints but I have it fully planned out in my head so try not to give any ideas for the storyline (everything else is okay) because I will not merge it as I already planned it out. Thanks. Enjoy the story. :)*
 
+*Oh yeah, just in case you guys didn't read the READ.md, once I am done with the story I am going to let you guys choose your positions and roles in the story. For example, I wrote things like Girl 1 and stuff so once I'm done I will let you guys tell me which one you want.*
+
 It was the 13th of February in the year 2021. Just a random date in the 2021 calendar, right? Wrong. It just so happens that this very day falls on a Friday. Friday the 13th.
  
 You're probably thinking that Friday the 13th does not exist, right? Well, let me tell you a story of what happened in the year 2020. Then let's see if your opinion of Friday the 13th is still the same.
