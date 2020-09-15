@@ -1,4 +1,4 @@
-*Story imcomplete! I haven't finished the story yet due to time constaints but I have it fully planned out in my head so try not to give any ideas for the storyline (everything else is okay) because I will not merge it as I already planned it out. Thanks. Enjoy the story. :)*
+Story imcomplete! I haven't finished the story yet due to time constaints but I have it fully planned out in my head so try not to give any ideas for the storyline (everything else is okay) because I will not merge it as I already planned it out. Thanks. Enjoy the story. :)
 
 It was the 13th of February in the year 2021. Just a random date in the 2021 calendar, right? Wrong. It just so happens that this very day falls on a Friday. Friday the 13th.
  
@@ -60,17 +60,17 @@ Eyes widened one after another. The zombie disease was contagious!
  
 Screams could be heard, and all the teachers’ eyes were drawn to a side of the field which had a few boys racing away from it.
  
-“Run! Zombies!” (Boy 5) urged everyone as he rushed past with (Boy 6).
+“Run! Zombies!” (Girl 1) screamed as she rushed past with (Girl 2).
  
-“Wait! We are here to help stop (Boy 2)!” Ms Poh (Hist) stopped (Boy 5) and (Boy 6).
+“Wait! We are here to help stop (Boy 2)!” Ms Poh (Hist) stopped (Girl 1) and (Girl 2).
  
-“You wouldn’t want to be bitten by the zombies and turn into one I tell you.” (Boy 6) warned, terrified.
+“You wouldn’t want to be bitten by the zombies and turn into one I tell you.” (Girl 2) warned, terrified.
  
-Together, (Boy 5) and (Boy 6) sprinted away.
+Together, (Girl 1) and (Girl 2) sprinted away.
  
 “Let’s get help from other students.” Mdm Tang (Cooking) muttered, shaking her head.
  
-“Do you need any help?” (Boy 7) queried as he neared the group of teachers.
+“Do you need any help?” (Boy 5) queried as he neared the group of teachers.
  
 “Okay so we know that the zombie disease can spread by biting like rabies.” Mr Lim (SC) began.
  
@@ -116,7 +116,7 @@ The zombies looked exactly like the boys they were except they had purple hair, 
  
 *A few moments later*
  
-“I’m sorry, (Boy 11) but I have to do this.” Ms Ng (Geog) apologised before shooting a netball.
+“I’m sorry, (Girl 3) but I have to do this.” Ms Ng (Geog) apologised before shooting a netball.
  
 “No! Your posture is wrong! You need to have your arm in a straight line and not use both hands to shoot!” Ms Lee (PE) instructed, demonstrating.
  
@@ -124,25 +124,25 @@ The zombies looked exactly like the boys they were except they had purple hair, 
  
 “Well at least you looked good while missing.” Ms Lee (PE) remarked. “That’s what I always tell my students.”
  
-“AHHH!!!” (Boy 12) screamed so shrilly that everyone had to stop and cover their ears for a moment.
+“AHHH!!!” (Girl 4) shrieked so shrilly that everyone had to stop and cover their ears for a moment.
  
-The zombified (Boy 11) was biting (Boy 12). Everyone’s faces paled but it was nothing in comparison to the shade of white that (Boy 12)’s face had turned.
+The zombified (Girl 3) was biting (Girl 4). Everyone’s faces paled but it was nothing in comparison to the shade of white that (Boy 12)’s face had turned.
  
-Everyone waited for (Boy 12) to turn into a zombie but he didn’t.
+Everyone waited for (Girl 4) to turn into a zombie but he didn’t.
  
 “Wait what? How is this possible?” Mr Low (Makerspace) asked in disbelief.
  
 “Hmmm… I read somewhere that while most people turn into zombies, some people are asymptomatic, so they do not turn into a zombie.” Ms Vaz (EL) explained.
  
-“Wow! Where did you read that?” The astonished (Boy 12) asked.
+“Wow! Where did you read that?” The astonished (Girl 4) asked.
  
 “As an English teacher I have to read books to expand my knowledge. You should too. It would help with your compositions.” Ms Vaz (EL) replied.
  
 “But the asymptomatic people can also spread the zombie disease.” Mr Low (Makerspace) brought up.
  
-Everyone involuntarily took a step back from (Boy 12).
+Everyone involuntarily took a step back from (Girl 4).
  
-“Well at least (Boy 12) is safe from turning into a zombie.” (Boy 7) commented. “I don’t think we should all try to see if we are a-symptomatic though.”
+“Well at least (Girl 4) is safe from turning into a zombie.” (Boy 7) commented. “I don’t think we should all try to see if we are a-symptomatic though.”
  
 “Guys, the field suddenly feels very empty.” Ms Chang (Cooking) noted.
  
@@ -164,9 +164,9 @@ Everyone involuntarily took a step back from (Boy 12).
  
 At the moment, realisation dawned on the boys and they looked at each other, horrified.
  
-“I’m guessing the girls are in the parade square.” Mr Lee (TRP) interpreted.
+“I’m guessing most of the girls are in the parade square.” Mr Lee (TRP) interpreted.
  
-The boys nodded slowly.
+The students nodded slowly.
  
 “Let’s go save them then!” Mr Ho (Comp) declared.
  
