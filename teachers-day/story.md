@@ -1,3 +1,5 @@
+Story imcomplete! I haven't finished the story yet due to time constaints but I have it fully planned out in my head so try not to give any ideas because I will not merge it as I already planned it out. Thanks. Enjoy the story. :)
+
 It was the 13th of February in the year 2021. Just a random date in the 2021 calendar, right? Wrong. It just so happens that this very day falls on a Friday. Friday the 13th.
  
 You're probably thinking that Friday the 13th does not exist, right? Well, let me tell you a story of what happened in the year 2020. Then let's see if your opinion of Friday the 13th is still the same.
