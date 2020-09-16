@@ -122,7 +122,7 @@ The zombies looked exactly like the boys they were except they had purple hair, 
  
 “No! Your posture is wrong! You need to have your arm in a straight line and not use both hands to shoot!” Ms Lee (PE) instructed, demonstrating.
  
-“Ohhh… I get it now!” Ms Poh (Hist) tried to shoot but missed, and her face flushed with emarassement as she laughed nervously.
+“Ohhh… I get it now!” Ms Poh (Hist) tried to shoot but missed, and her face flushed with embarrassment as she laughed nervously.
  
 “Well at least you looked good while missing.” Ms Lee (PE) assured. “That’s what I always tell my students.”
  
