@@ -1,4 +1,4 @@
-*Story (finally) complete! Thank you to all who helped me by giving suggestions (even if I didn't merge your pull request)! If any of you have any suggestions like for the grammar or vocab please feel free to tell me. :)*
+*Story (finally) complete! Thank you to all who helped me by giving suggestions (even if I didn't merge your pull request)! If any of you have any suggestions like for the grammar or vocab please feel free to tell me (I wrote this at 1 am and didn't really check so there could be a lot of mistakes. Sorry!).*
 
 *Oh yeah, just in case you guys didn't read the READ.md, since I'm done with the story I am going to let you guys choose your positions and roles in the story. For example, I wrote things like Girl 1 and stuff so you guys can tell me which one you want. I made another file with all the charaters and you guys can either make a pull request or just tell me in person or pm me (half of the girls don't need to). Just do it before Monday night because I still need to add all the names. Thanks! Let's get right into the story! Enjoy! :)*
 
@@ -310,4 +310,4 @@ Everybody whipped their head around towards the staircase at the canteen and gas
 
 “Happy Friday the 13th.” The mysterious person smirked and with a wave of his hand everyone stopped being able to move. 
 
-Stay tuned for the sequel! :)
+*Stay tuned for the sequel! :)*
