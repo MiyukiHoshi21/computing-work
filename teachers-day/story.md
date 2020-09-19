@@ -186,7 +186,7 @@ Everyone agreed and grabbed as many netballs as they could and darted towards th
 
 “Other than that, almost half the girls are zombies now.” (Girl 3) added sadly. 
 
-“Amazing! I feel so accomplished!” (Boy 2) 
+“Amazing! I feel so accomplished!” (Boy 2) beamed, taking in the scene around him. 
 
 “This is getting very serious.” Ms Lee (PE) remarked, glaring at (Boy 2). Everyone nodded in agreement, shuddering at the huge crowd of zombified girls.
 
