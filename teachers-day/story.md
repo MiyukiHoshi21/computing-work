@@ -256,6 +256,66 @@ Everyone agreed and grabbed as many netballs as they could and darted towards th
 
 “Okay! Get to work everyone!” Mr Ng (Comp) announced. 
 
+*At the computer room*
+
+The computing teachers decided that the 3 girls would work together on one part of the code while they work together on the rest of the code. 
+
+“If you don’t know how to write anything just inform us okay?” Mr Ho (Comp) advised the girls. 
+
+“No worries, we’ve got it. We’ll tell you if we need help.” (Girl 11) assured the teachers. 
+
+The girls started discussing among themselves about which code to write. 
+
+“We’ll need to add a bit where the robot can move it’s hand.” (Girl 5) stated. 
+
+“I wonder how those who are baking the cupcakes are doing.” (Girl 6) muttered. 
+
+*At the cooking room*
+
+“Okay here are the ingredients for the cupcakes. You all can split into pairs to start preparing the cupcakes. Each pair will bake 6 cupcakes.” Mdm Tang (Cooking) instructed the students that were there. 
+
+“Do you all still remember how to make the cupcakes? If you have any problem feel free to find any of us.” Ms Chang added, going to her own station to make her own batch. 
+
+“Let’s be a pair.” (Girl 7) suggested to (Girl 8) who nodded in agreement. The remaining students grouped themselves into 2 pairs – (Girl 9) and (Girl 10), and (Boy 7) and (Boy 9).
+
+As they baked, they chatted about their zombified classmates. 
+
+“Our classmates that have turned into zombies are so scary!” (Girl 9) shivered while mixing the batter. 
+
+“I know right, I wonder how it feels to be a zombie!” (Girl 10) commented, crushing the walnuts. 
+
+“At least we are helping to save them.” (Girl 8) said positively. 
+
+*Once the cupcakes were done*
+
+“Wow, they smell as amazing as I remember!” (Boy 9) remarked, taking a batch of cupcakes out of the oven. 
+
+“Mhmmm I wonder if there will be any leftovers for us.” (Boy 7) joked. 
+
+*At the STEM room*
+
+“Where’s Ms Yick (Music) and (Girl 3)?” (Girl 1) queried, scanning the room for them. 
+
+“Ms Yick (Music) said she went to the music room to get her score for the notes the buzzer will buzz.” Mrs Chu (SC) mentioned. 
+
+“I’m back! I got the notes from the Arduino lessons we had so we can refer to them will writing the code!” (Girl 3) popped into the room. 
+
+“Thanks! This would help us a lot!” (Girl 2) thanked, setting up a laptop. 
+
+Mr Lim (SC) handed the girls a breadboard, the buzzer and wires and went to write his part of the code with Mrs Chu (SC). 
+
+*At the Makerspace room*
+
+“I’m done designing the robot!” Ms Goh (Art) informed, “Now you can transfer it onto the computer.”
+
+“I have a thumb drive we can use to transfer the diagrams to the machine” Mr Low told the 3 boys that were with him. 
+
+(Boy 13) whispered to his friends, “I wonder how the rest of our classmates are doing.”
+
+“Me too, I’m glad we chose this, doing hardware is more fun than software to me.” (Boy 12) whispered back. 
+
+“Shhh! Mr Low (Makerspace) is coming!” (Boy 14) hissed and the 3 of them went back to work. 
+
 *Many moments later*
 
 “Okay that’s the last of the zombies.” Mr Ong (SC) panted, wiping the perspiration that had formed on her forehead. 
