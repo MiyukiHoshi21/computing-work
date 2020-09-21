@@ -6,7 +6,6 @@ I like to:
 3. Draw (comics and cartoons)
 4. Watch anime
 
-I am writing a kind off fiction story for Teacher's Day. I hope you guys will like it. :)
+I am writing a kind of fiction story for Teacher's Day. I hope you guys will like it. ^_^
 
-
-NOTE: I wrote the story with stuff like (Boy 1) and (Girl 1). I included as many as I could but I honestly couldn't think of something for all the girls so I turned half of them into zombies (sorry for the spoiler). So once I'm done all of you can choose like which position you all want like you can be like hey I want to be (Girl 1) then I'll replace all the (Girl 1)s with your name. 
+NOTE: A lot of you didn't tell me which positions you wanted so I ended up using a random number picker to randomsly pick your register numbers. Please don't kill me. Thanks. (ᵔᴥᵔ)
