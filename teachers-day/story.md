@@ -180,9 +180,9 @@ Everyone agreed and grabbed as many netballs as they could and darted towards th
 
 “I- wow.” Mrs Chu (SC) breathed out, nearly speechless. 
 
-“Hi teachers! Are you here to help us?” (Girl 1) greeted. 
+“Hi teachers! Are you here to help us?” Audrey greeted. 
 
-“Yeah! I think (Girl 1), (Girl 3) and I are asymptomatic.” Yan Ching informed them. 
+“Yeah! I think Audrey, (Girl 3) and I are asymptomatic.” Yan Ching informed them. 
 
 “Other than that, almost half the girls are zombies now.” (Girl 3) added sadly. 
 
@@ -250,7 +250,7 @@ Everyone agreed and grabbed as many netballs as they could and darted towards th
 
 “You all know how to get to the places right? Just in case you forget…” Ms Ng (Geog) started providing directions for the shortest possible route to each room. 
 
-“Wow her mind map of the school is very clear.” (Girl 1) commented. 
+“Wow her mind map of the school is very clear.” Audrey commented. 
 
 “Well she taught us about it so of course she would.” Yan Ching grinned. 
 
@@ -294,7 +294,7 @@ As they baked, they chatted about their zombified classmates.
 
 *At the STEM room*
 
-“Where’s Ms Yick (Music) and (Girl 3)?” (Girl 1) queried, scanning the room for them. 
+“Where’s Ms Yick (Music) and (Girl 3)?” Audrey queried, scanning the room for them. 
 
 “Ms Yick (Music) said she went to the music room to get her score for the notes the buzzer will buzz.” Mrs Chu (SC) mentioned. 
 
