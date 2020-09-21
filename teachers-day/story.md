@@ -182,7 +182,7 @@ Everyone agreed and grabbed as many netballs as they could and darted towards th
 
 “Hi teachers! Are you here to help us?” (Girl 1) greeted. 
 
-“Yeah! I think (Girl 1), (Girl 3) and I are asymptomatic.” (Girl 2) informed them. 
+“Yeah! I think (Girl 1), (Girl 3) and I are asymptomatic.” Yan Ching informed them. 
 
 “Other than that, almost half the girls are zombies now.” (Girl 3) added sadly. 
 
@@ -192,7 +192,7 @@ Everyone agreed and grabbed as many netballs as they could and darted towards th
 
 “Well, let’s get to work.” Mr Chew (PE) urged, picking up a netball and adjusting his posture to shoot. 
 
-“Isn’t it a bit cruel to be trying to hit our friends?” (Girl 2) asked, glancing apologetically at (Girl 4) before tossing the ball at her. 
+“Isn’t it a bit cruel to be trying to hit our friends?” Yan Ching asked, glancing apologetically at (Girl 4) before tossing the ball at her. 
 
 “Hey, you have to throw it hard to knock them out you know.” (Boy 13) stated like it was the most obvious thing on earth. 
 
@@ -252,7 +252,7 @@ Everyone agreed and grabbed as many netballs as they could and darted towards th
 
 “Wow her mind map of the school is very clear.” (Girl 1) commented. 
 
-“Well she taught us about it so of course she would.” (Girl 2) grinned. 
+“Well she taught us about it so of course she would.” Yan Ching grinned. 
 
 “Okay! Get to work everyone!” Mr Ng (Comp) announced. 
 
@@ -300,7 +300,7 @@ As they baked, they chatted about their zombified classmates.
 
 “I’m back! I got the notes from the Arduino lessons we had so we can refer to them will writing the code!” (Girl 3) popped into the room. 
 
-“Thanks! This would help us a lot!” (Girl 2) thanked, setting up a laptop. 
+“Thanks! This would help us a lot!” Yan Ching thanked, setting up a laptop. 
 
 Mr Lim (SC) handed the girls a breadboard, the buzzer and wires and went to write his part of the code with Mrs Chu (SC). 
 
