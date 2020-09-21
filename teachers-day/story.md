@@ -1,6 +1,6 @@
-*Story (finally) complete! Thank you to all who helped me by giving suggestions (even if I didn't merge your pull request)! If any of you have any suggestions like for the grammar or vocab please feel free to tell me (I wrote this at 1 am and didn't really check so there could be a lot of mistakes. Sorry!).*
+*Story (finally) complete! Thank you to all who helped me by giving suggestions (even if I didn't merge your pull request)! If any of you have any suggestions like for the grammar or vocab please feel free to tell me (I wrote this at 1 am and didn't really check so there could be a lot of mistakes. Sorry! ε(┬┬﹏┬┬)3).*
 
-*Oh yeah, just in case you guys didn't read the READ.md, since I'm done with the story I am going to let you guys choose your positions and roles in the story. For example, I wrote things like Girl 1 and stuff so you guys can tell me which one you want. I made another file with all the charaters and you guys can either make a pull request or just tell me in person or pm me (half of the girls don't need to). Just do it before Monday night because I still need to add all the names. Thanks! Let's get right into the story! Enjoy! :)*
+*Oh yeah, since a lot of you didn't tell me which position you guys wanted I ended up*
 
 It was the 13th of February in the year 2021. Just a random date in the 2021 calendar, right? Wrong. It just so happens that this very day falls on a Friday. Friday the 13th.
  
