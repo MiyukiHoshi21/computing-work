@@ -1,6 +1,6 @@
 *Story (finally) complete! Thank you to all who helped me by giving suggestions (even if I didn't merge your pull request)! If any of you have any suggestions like for the grammar or vocab please feel free to tell me (I wrote this at 1 am and didn't really check so there could be a lot of mistakes. Sorry! ε(┬┬﹏┬┬)3).*
 
-*Oh yeah, a lot of you didn't tell me which positions you wanted by Monday midnight (do any of you sleep later than this) so I ended up using a random number picker to randomsly pick your register numbers. Please don't kill me. Thanks. ( ◑‿◑)*
+*Oh yeah, a lot of you didn't tell me which positions you wanted by Monday midnight (do any of you sleep later than this) so I ended up using a random number picker to randomsly pick your register numbers. Please don't kill me. Thanks. (ɔ◔‿◔)ɔ *
 
 It was the 13th of February in the year 2021. Just a random date in the 2021 calendar, right? Wrong. It just so happens that this very day falls on a Friday. Friday the 13th.
 
