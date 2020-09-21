@@ -30,7 +30,7 @@ Boy 14: Guy who offered to help who went to build the robot
 
 Girl 1: 2nd asymptomatic who went to write the Arduino code
 
-Girl 2: 3rd asymptomatic who went to write the Arduino code
+Girl 2 - Yan Ching: 3rd asymptomatic who went to write the Arduino code
 
 Girl 3: 4th asymptomatic who went to write the Arduino code
 
